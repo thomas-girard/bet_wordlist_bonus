@@ -1,1 +1,1 @@
-wordlist of keywords to find bonuses for ANJ certifications
+Wordlist of keywords to find promo codes on betting sites
